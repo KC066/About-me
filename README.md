@@ -25,3 +25,5 @@ Biomedical Research and Diagnostics
 I aspire to pursue advanced research in genetics, particularly focusing on neurological and neurodivergent conditions, and contribute to innovative disgnostics or therapeutic approaches.
 # Connect with me
 Github : https://github.com/KC066 
+# To know more about me CLICK on the link for a Self-Introductory Video
+https://drive.google.com/drive/folders/13rBqH_g8r-keSqKW_yh3IuF0DNL-xBds
